@@ -2,7 +2,7 @@
 - 👀 I’m interested in hypnosis 
 - 🌱 I’m currently learning French 
 - 💞️ I’m looking to collaborate on hypnosis practice 
-- 📫 How to reach me on email: various4.us@gmail.com 
+- 📫 How to reach me: various4.us@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
